@@ -36,4 +36,4 @@ Criar soluções simples, práticas e fáceis de manter para melhorar processos 
 
 ## 📫 LinkedIn
 
-[Meu LinkedIn](https://www.linkedin.com/in/junior-andrade-2360a827/)
+[[Meu LinkedIn](https://www.linkedin.com/in/junior-andrade-2360a8278?utm_source=share_via&utm_content=profile&utm_medium=member_ios)
